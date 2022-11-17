@@ -1,2 +1,1 @@
-# buypowernow
- Electesicity
+Pay For all discos in Nigeria.
